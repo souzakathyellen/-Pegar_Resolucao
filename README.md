@@ -1,0 +1,1 @@
+# -Pegar_Resolucao
